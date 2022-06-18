@@ -2,7 +2,7 @@
 
 ## Graphic Designer
 
-## 📋 Contacts
+## ✉️ Contacts
 
 [Telegram](https://www.t.me/mewnisss/) <br/> [Instagram](https://www.instagram.com/itsmeowtwo/) 
 
